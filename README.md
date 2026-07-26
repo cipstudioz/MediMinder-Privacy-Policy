@@ -1,0 +1,1 @@
+# MediMinder-Privacy-Policy
